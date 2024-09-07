@@ -1,1 +1,1 @@
-# cdlshs.depedtayo.ph
+# cdlshs.depedtayo.ph Beta Tester
